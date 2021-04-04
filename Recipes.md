@@ -1,0 +1,2 @@
+Combine Milk and Corn Starch in a heat-proof bowl and mix very well. Cook in the microwave in medium power. Cooking time depends on your machine. I set my machine at 600W, cook 90 seconds, STIR UP very well, then cook 30 seconds and STIR!
+The gooey paste will turn firmer and rubbery like ‘Mochi’ when cold. Enjoy warm or cold, with your favourite topping.
